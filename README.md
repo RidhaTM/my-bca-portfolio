@@ -38,5 +38,5 @@ I am a recent Computer Applications graduate with a strong academic foundation i
 
 ### 📫 Connect With Me
 
-* **LinkedIn:** [linkedin.com/in/ridha-tm-306a8a36a](https://www.linkedin.com/in/ridha-tm-306a8a36a)
+* **LinkedIn:** [linkedin.com/in/ridha-tm](https://www.linkedin.com/in/ridha-tm-306a8a36a)
 * **Email:** ridhatm04@gmail.com
