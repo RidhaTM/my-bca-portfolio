@@ -40,4 +40,4 @@ I am a recent Computer Applications graduate with a strong academic foundation i
 
 * **LinkedIn:** [linkedin.com/in/ridha-tm-306a8a36a](https://www.linkedin.com/in/ridha-tm-306a8a36a)[span_11](start_span)[span_11](end_span)
 * **Email:** ridhatm04@gmail.com[span_12](start_span)[span_12](end_span)
-
+ 
